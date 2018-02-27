@@ -18,4 +18,4 @@ As our network of teams grows we plan to provide facilities and services to aid 
 As our pilot center and facilities become operational our plans are to try and copy and paste the successes we've made to expand the sphere of influence of our loose network of partnerships we've garnered in time. Continually improving our offerings only helps to further establish Raise STEM! within the community. At a time in the near future, we hope to be in place where we can more concretely strengthen the connections to community and a wider public through continued outreach and membership. We hope to form partner spaces throughout the community to further our mission. These partner spaces will incorporate other art studios, as well as wood shops, machine shops, welding, soldering, electrical, sewing, stained glass, blacksmithing, and other media as the partnership grows. The resulting network will tie the business, legal, and funding resources to enable innovative and creative ideas to come forward and flourish across the Miami Valley and beyond.
 
 
-:copy; Raise STEM! 2018
+&copy; Raise STEM! 2018
